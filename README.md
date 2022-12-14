@@ -1,2 +1,0 @@
-# CV
-CV Matthéo Gambier
